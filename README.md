@@ -59,7 +59,7 @@ Saya terus belajar dan mengembangkan kemampuan untuk dapat memberikan insight ya
 ## 📫 Mari Terhubung
 
 * Email: **[ridhoibra9@gmail.com](mailto:ridhoibra9@gmail.com)**
-* LinkedIn: *[Ridho Akbar Fadhilah](www.linkedin.com/in/ridhoakfa)*
+* LinkedIn: *[Ridho Akbar Fadhilah](https://www.linkedin.com/in/ridhoakfa/)*
 
 ---
 
